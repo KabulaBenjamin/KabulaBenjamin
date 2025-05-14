@@ -36,7 +36,7 @@
 
 📍 Kakamega, Kenya  
 📧 [kabulabenjamin25@gmail.com](mailto:kabulabenjamin25@gmail.com)  
-🔗 [LinkedIn]([https://linkedin.com/in/your-profile](https://www.linkedin.com/in/koikoi-benjamin-2b9370162?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B%2Fxg8AwX9TPWtojUjaMGjBg%3D%3D)) *(This is my linkedin)*  
+🔗 [LinkedIn](https://linkedin.com/in/your-profile](https://www.linkedin.com/in/koikoi-benjamin-2b9370162?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B%2Fxg8AwX9TPWtojUjaMGjBg%3D%3D) *(This is my linkedin)*  
 
 ---
 
